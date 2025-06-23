@@ -27,7 +27,7 @@
 
 🌍 **Let's Connect**
 - 📫 Email: ishpriyasharma15@gmail.com  
-- 💼 [LinkedIn] : (https://www.linkedin.com/in/ishpriya-sharma-a6a61a368/?original_referer=https%3A%2F%2Fwww%2Egoogle%2Ecom%2F&originalSubdomain=in)
+- 💼 [LinkedIn] : (https://www.linkedin.com/in/ishpriya-sharma-a6a61a368)
 
 ---
 
